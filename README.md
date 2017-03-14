@@ -12,4 +12,4 @@
 * [Maison Standards](http://www.maisonstandards.com/fr/content/72-sweatshirts)
 * [Drapeau noir](https://drapeau-noir.fr/product-category/pulls/)
 * [Six&Sept](http://sixetsept.fr/13-les-essentiels-six-sept)
-* 	[loom] (https://www.loom.fr/collections/hauts)
+* 	[loom](https://www.loom.fr/collections/hauts)
