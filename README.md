@@ -37,9 +37,9 @@ Sélection de marques et produits slow-fashion made in Europe et à des prix abo
 
 ## Accessoires
 ## Ceintures 
-* [Atelier Particulier](http://www.atelierparticulier.com/shop/?category=Ceintures])
+* [Atelier Particulier](http://www.atelierparticulier.com/shop/?category=Ceintures)
 * [Loom](https://www.loom.fr/collections/accessoires)
 
 ## Chausettes
 * [Atelier Particulier](http://www.atelierparticulier.com/shop/?category=Chaussettes)
-* 
+
