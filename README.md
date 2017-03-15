@@ -23,10 +23,23 @@ Sélection de marques et produits slow-fashion made in Europe et à des prix abo
 ### Jeans
 * [LePantalon](https://www.lepantalon.fr/fr/9-jeans)
 * [1083](http://www.1083.fr/jeans.html)
+* [Champ de manoeuvres](https://champdemanoeuvres.com/boutique/homme/jeans-selvedge/)
 
 ## Chaussures
 ### Sneakers
 * [1083](http://www.1083.fr/chaussures.html)
+* [Seagales](https://seagale.fr/fr/home/30-ultralight-city-shoes)
 
 ### Classics
 * [Paire et Fils](http://www.pairetfils.com)
+* [Bobbies](http://www.bobbies.com/fr/)
+
+
+## Accessoires
+## Ceintures 
+* [Atelier Particulier](http://www.atelierparticulier.com/shop/?category=Ceintures])
+* [Loom](https://www.loom.fr/collections/accessoires)
+
+## Chausettes
+* [Atelier Particulier](http://www.atelierparticulier.com/shop/?category=Chaussettes)
+* 
