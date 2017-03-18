@@ -29,6 +29,7 @@ Sélection de marques et produits slow-fashion made in Europe et à des prix abo
 ### Sneakers
 * [1083](http://www.1083.fr/chaussures.html)
 * [Seagales](https://seagale.fr/fr/home/30-ultralight-city-shoes)
+* [Equal-for-all](http://equal-for-all.com/shop/en/men-23)
 
 ### Classics
 * [Paire et Fils](http://www.pairetfils.com)
