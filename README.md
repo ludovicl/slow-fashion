@@ -24,6 +24,7 @@ Sélection de marques et produits slow-fashion made in Europe et à des prix abo
 * [LePantalon](https://www.lepantalon.fr/fr/9-jeans)
 * [1083](http://www.1083.fr/jeans.html)
 * [Champ de manoeuvres](https://champdemanoeuvres.com/boutique/homme/jeans-selvedge/)
+* [DDM](http://store.dnm-pieces.fr/index.php)
 
 ## Chaussures
 ### Sneakers
